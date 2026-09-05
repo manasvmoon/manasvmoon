@@ -7,7 +7,7 @@
 
 - 📫 Reach me at: **me.manasmoon@gmail.com**
 
-- ⚡ I think I am 5'8 but irl I am just 5'3 (crying emoji)
+- ⚡ I think I am 5'8 but in real life I am just 5'3 (crying emoji)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
